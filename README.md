@@ -1,2 +1,1 @@
-### Hi there 👋
- I am sudeep kumar padhy
+Hey there this is sudeep kumar padhy.
